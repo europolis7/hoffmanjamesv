@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hoffmanjamesv
+- 👀 I’m interested in launching the app Europolis, check: 
+- 🌱 Here is the link of the application (Windows, Android & iOS available): https://www.europolis.eu/?invite=60cf2cf096536f5cbc57a14d
+- 💞️ I’m looking to collaborate with influencers 
+- 📫 How to reach me ... HERE!
